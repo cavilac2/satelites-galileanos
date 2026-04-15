@@ -14,6 +14,7 @@ siendo visibles incluso con telescopios de baja potencia.
 en una composición que compara sus tamaños con el tamaño de Júpiter. 
 En orden descendente, son *Ío*, *Europa*, *Ganimedes* y *Calisto*.
 
+Otros satélites de Júpiter son Titán, Amaltea y Lisitea.
 
 
 
