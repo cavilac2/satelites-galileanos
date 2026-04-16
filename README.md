@@ -16,5 +16,8 @@ En orden descendente, son *Ío*, *Europa*, *Ganimedes* y *Calisto*.
 
 Otros satélites de Júpiter son Titán, Amaltea y Lisitea.
 
+Otros más satélites de Júpiter son Thebe, Erinome, Orthosie, Jupiter LXl, Carme.
 
+El término satélites de Júpiter hace referencia a los satélites naturales que orbitan al planeta Júpiter. Actualmente hay registrados 97 satélites naturales[1] que orbitan a Júpiter; el más grande es Ganímedes (con un diámetro de 5262 km) y el más pequeño es S/2003 J 9 (con un diámetro de ≈1 km).
 
+Fuente: Wikipedia.
